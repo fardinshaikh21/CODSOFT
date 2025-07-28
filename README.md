@@ -1,3 +1,1 @@
-makslnamskvgfnahskvfagsfardfard
-
 # 🚀 CodSoft
